@@ -39,3 +39,11 @@ We welcome all contributions! There are many ways to contribute to the project, 
 - [EigenLayer/EigenDA forum](https://forum.eigenlayer.xyz/c/eigenda/9)
 - [Email](mailto:eigenda-support@eigenlabs.org)
 - [Follow us on X](https://x.com/eigen_da)
+Mise à jour du 05 fevrier 2025 ✅
+Mise à jour du 06 fevrier 2025 ✅
+
+
+
+
+
+
