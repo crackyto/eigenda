@@ -41,7 +41,8 @@ We welcome all contributions! There are many ways to contribute to the project, 
 - [Follow us on X](https://x.com/eigen_da)
 Mise à jour du 05 fevrier 2025 ✅
 Mise à jour du 06 fevrier 2025 ✅
-
+Mise à jour du 07 fevrier 2025 ✅
+Mise à jour du 08 fevrier 2025 ✅
 
 
 
